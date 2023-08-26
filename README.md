@@ -1,1 +1,1 @@
-Winning isn't always championships. | **by Michael Jordan**
+If the plan doesn't work, change the plan, but never the goal. | **by Unknown**
