@@ -1,1 +1,1 @@
-New content for the README file
+Winning isn't always championships. | **by Michael Jordan**
