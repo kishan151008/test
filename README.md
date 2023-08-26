@@ -1,1 +1,1 @@
-If the plan doesn't work, change the plan, but never the goal. | **by Unknown**
+You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. | **by Zig Ziglar**
